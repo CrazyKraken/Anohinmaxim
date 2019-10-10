@@ -1,4 +1,10 @@
-3:  
+Анохин Максим
+
+1: -
+
+2: -
+
+3:  https://github.com/CrazyKraken/KKK/blob/master/README.md
 
 4:  https://yadi.sk/i/eyL6AYorkCXk9A
 
