@@ -6,6 +6,7 @@
 8:  https://kodaktor.ru/?!=mda2911_97299
 9:  https://morning-tundra-96606.herokuapp.com/static.pdf
 10: https://kodaktor.ru/?!=5a357fe_63442
+2019 
 11: https://kodaktor.ru/click_f0b86
 12: 1)https://kodaktor.ru/?!=a281534_bc306 2)https://kodaktor.ru/?!=5_99115
 13: https://kodaktor.ru/custom_30f3b
